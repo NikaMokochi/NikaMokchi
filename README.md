@@ -4,3 +4,4 @@ wulp... ok? I can't work on git here and can u help my git please?
 -`♡´- ok then, u can signs ata n sp to me-
 please u should add me on dis same my username!
 <thanks y'll!!>
+![Uploading picgifs-final-fantasy-x-8300007.gif…]()
